@@ -1,1 +1,2 @@
 AHojky
+ako sa mas
